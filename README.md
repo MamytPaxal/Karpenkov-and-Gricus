@@ -1,1 +1,1 @@
-created by Karpenkov and Gricus 131c
+created by Karpenkov and Gricus. Group: 131c
